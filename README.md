@@ -1,11 +1,11 @@
-# Lithium Nuker V2 Cracked By @Mr.Joex
+# Lithium Nuker V2 Cracked By @Mr3b
 
  # Credits:
 
-* @Mr.Joex - Dev - Cracked
+* @Mr3b
 
-╔════════════════════════════╗      
-║     dsc.gg/hiddencam       ║
-║  Instagram.com/0xmrjoex    ║  
-║ https://guns.lol/0xmrjoex  ║  
-╚════════════════════════════╝   
+╔═════════════════════════════════════╗      
+║         dsc.gg/DrnNSdZ8             ║
+║  Instagram.com/physically_burned    ║  
+║        https://guns.lol/vvvuuu      ║  
+╚═════════════════════════════════════╝   
